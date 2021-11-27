@@ -1,1 +1,3 @@
 # nikhil-resume
+
+NOT FOR COMMERCIAL PURPOSE
